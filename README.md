@@ -1,1 +1,1 @@
-# Scienc-e-Book-Class-10
+# Science-Book-Class-10
